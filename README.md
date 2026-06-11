@@ -1,2 +1,0 @@
-# Pamonharia-Pantaneira
-Público 
